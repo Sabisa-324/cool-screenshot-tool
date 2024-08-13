@@ -9,3 +9,6 @@ idk mabe, i recomend using on windows do, it not rely ment for linuk
 
 ## how to contribut?
 no
+
+me hav disco seber, ples join
+https://discord.gg/ATUM87pqKG
